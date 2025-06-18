@@ -3,7 +3,7 @@
 ![tetoteteto](https://github.com/user-attachments/assets/24acbcff-4384-4ba0-a8f4-31d143ac581b)
 
 
-If ur alarm doesn't ring at 3:37 am ur my opp. /ref /MARIO TIME
+If ur alarm doesn't ring at 3:37 am ur my opp. /ref 
 
 I lobe my wife 🫀 
 
