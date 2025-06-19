@@ -7,6 +7,8 @@ If ur alarm doesn't ring at 3:37 am ur my opp. /ref
 
 I lobe my wife 🫀 
 
+my actual pronouns are she / it / they
+
 
 <!--
 **st0mach-b0ok/st0mach-b0ok** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
