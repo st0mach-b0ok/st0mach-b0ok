@@ -8,7 +8,7 @@ Boiiii I'm so tuff 😹✌️✌️
 I lobe my wife 🫀 
 
 
-*Donald Trump likes calling people gay. But I'm not gay. Because of this... I like girls. I do not like guys. But maybe I am gay... Damn it. I think I like boys now. I'm coming out. AS GAY, I LIKE MEN! But I like girls. Maybe I'm a lesbian. I LIKE GIRLS. But maybe I'm a woman. I LIKE BOYS! help help Oh... DONALD TRUMP SAVE ME PLEASE. THE LIBERALS! HELP ME?
+* Donald Trump likes calling people gay. But I'm not gay. Because of this... I like girls. I do not like guys. But maybe I am gay... Damn it. I think I like boys now. I'm coming out. AS GAY, I LIKE MEN! But I like girls. Maybe I'm a lesbian. I LIKE GIRLS. But maybe I'm a woman. I LIKE BOYS! help help Oh... DONALD TRUMP SAVE ME PLEASE. THE LIBERALS! HELP ME?
 * Clover? Cloverless. yyyyyyyy.
 
 
